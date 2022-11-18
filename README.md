@@ -6,4 +6,4 @@ i'll add it later on.
 
 but you can still access my page.
 feel free to check it out.
-https://maulzzzaqi.github.io
+https://maulzzaqi.github.io
